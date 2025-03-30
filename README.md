@@ -1,0 +1,1 @@
+# zahvat-kamery-i-izmerenie-izobrajeniya
